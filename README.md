@@ -1,4 +1,7 @@
-## Hi there 👋
+## no
+how do you remain happy while destroying one's life
+
+i want to rip your face apart and throe you into a boiling hot pot with lemons and salt
 
 <!--
 **wtffffff5/wtffffff5** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
