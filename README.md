@@ -1,8 +1,6 @@
 ## uurrhhgggregh274sggrfjdc
 
-i want to rip your face apart and throe you into a boiling hot pot with lemons and salt
-
-patiency doesnt do shit just humiliate all of them one by one
+invest in my user like bitcoin
 <!--
 **wtffffff5/wtffffff5** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
