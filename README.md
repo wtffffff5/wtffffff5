@@ -11,6 +11,11 @@ invest in my user like bitcoin
     <img src="https://img.shields.io/badge/♫_Chimichanga_—_Porcelain-FFF9DB?style=flat-square&labelColor=FFF9DB&logo=spotify&logoColor=B5A66A" />
   </a>
 </p>
+<p align="center">
+  <a href="https://open.spotify.com/track/3bWriexgkG7aykYmtfGWr3?si=CQZCr5G3T7y8fMUXK4bgmw&utm_source=copy-link">
+    <img src="https://img.shields.io/badge/♫_Cowpoke_—_Issaiah_Sheffield-F0F8E9?style=flat&logo=spotify&logoColor=849A79" />
+  </a>
+</p>
 <!--
 **wtffffff5/wtffffff5** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
