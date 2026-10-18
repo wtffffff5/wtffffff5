@@ -1,5 +1,4 @@
-## no
-how do you remain happy while destroying one's life
+## uurrhhgggregh274sggrfjdc
 
 i want to rip your face apart and throe you into a boiling hot pot with lemons and salt
 
