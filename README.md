@@ -2,9 +2,7 @@
 
 i want to rip your face apart and throe you into a boiling hot pot with lemons and salt
 
-<p align="center">
-  <img src="https://cdn.phototourl.com/member/2026-10-18-df128632-13a6-413d-be39-1d52abfa1a09.jpg" width="700">
-</p>
+patiency doesnt do shit just humiliate all of them one by one
 <!--
 **wtffffff5/wtffffff5** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
