@@ -3,7 +3,7 @@
 invest in my user like bitcoin
 <p align="center">
   <a href="https://open.spotify.com/search/alt-J%20Breezeblocks">
-    <img src="https://img.shields.io/badge/♫_Breezeblocks_—_alt--J-c4c4c4?style=flat-square&labelColor=808080&logo=spotify&logoColor=white" />
+    <img src="https://img.shields.io/badge/♫_Breezeblocks_—_alt--J-c4c4c4?style=for-the-badge&labelColor=808080&logo=spotify&logoColor=white" />
   </a>
 </p>
 <!--
