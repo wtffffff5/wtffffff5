@@ -20,6 +20,9 @@ invest in my user like bitcoin
 <p align="center">
   <img src="https://cdn.phototourl.com/member/2026-11-07-31b28362-5862-4fb2-8efe-a0acf3d6edb6.jpg" width="700">
 </p>
+
+name ~dian~
+why died ~extreme cuteness overload~
 <!--
 **wtffffff5/wtffffff5** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
